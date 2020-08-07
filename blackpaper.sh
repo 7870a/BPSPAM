@@ -1,4 +1,5 @@
-#norecode
+#mau recode
+#mastah kok recode
 #aowkwkwkwkwk
 
 z="
